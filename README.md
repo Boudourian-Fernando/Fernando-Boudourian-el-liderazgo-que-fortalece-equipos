@@ -1,1 +1,2 @@
 # Fernando-Boudourian-el-liderazgo-que-fortalece-equipos
+Los mejores líderes no solo toman decisiones acertadas, sino que saben conectar con su equipo. La inteligencia emocional permite gestionar conflictos, mejorar la comunicación y fomentar la confianza. Un líder que regula sus emociones y entiende las de los demás crea un ambiente donde la innovación y la productividad florecen. La IE no es un extra, sino una herramienta clave para el éxito organizacional.
